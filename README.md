@@ -1,1 +1,0 @@
-# newntim.github.io
